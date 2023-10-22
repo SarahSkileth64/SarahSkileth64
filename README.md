@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SarahSkileth64
 - 👀 I’m interested in ... a huge amount of things.
-- 🌱 I’m currently learning ... Swedish and programming
+- 🌱 I’m currently learning ... Swedish, Russian and programming
 - 💞️ I’m looking to collaborate on ... not really anything
 - 📫 How to reach me ... 
 
